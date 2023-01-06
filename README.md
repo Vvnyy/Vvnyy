@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Vvnyy 😁
+## Bem-vindo(a) ao perfil do Vvnyy :nerd_face:
 
  <div>
    <a href="https://github.com/Vvnyy">
